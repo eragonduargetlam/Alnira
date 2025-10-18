@@ -1,0 +1,1 @@
+An explosive and stubborn sprite, frustrated that she is unable to go rescue the orchid (eggs) herself. Quick to sass and easily impatient, she was among the sprites assigned to watch over the orchid when it was stolen. Even though magic prevented her from moving and defending the flower, she believes that she failed to protect the orchid and is taking it to heart

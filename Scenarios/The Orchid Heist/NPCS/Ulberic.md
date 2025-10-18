@@ -1,0 +1,1 @@
+A level headed people pleaser, this sprite seems meek in comparison to [[Pandora]]. His own child is held within the orchid, and he will go to great lengths to ensure their safe return, offering to sacrifice part of his magic in order to provide the adventurers with magic tools to aid them in their mission.

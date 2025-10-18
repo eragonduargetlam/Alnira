@@ -1,0 +1,2 @@
+– A partially sunken temple-shrine buried deep within the [[Bramblevein Woods]], marked only by overgrown monoliths and sporadic divine anomalies.  Headquarters of [[Weeping Sigil]]
+_(Remote, hidden, divine-ruin site)_

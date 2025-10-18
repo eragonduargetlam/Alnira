@@ -1,0 +1,2 @@
+– A fortified bastion overlooking the [[Plains of Severance]], serving as both chapel and war-college to the Synod.  Headquarters of [[Factions/The Dawnbearer Synod]]
+_(Heavily fortified, inland highland stronghold)_

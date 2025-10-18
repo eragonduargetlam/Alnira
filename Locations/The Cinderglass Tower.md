@@ -1,0 +1,1 @@
+– A seven-story glass-and-bronze tower in central [[Velcairn]]'s [[Stonemarket]], rising above the Share Council chambers and guarded by private security firms. Headquarters of the [[Velcairn Trade Consortium]] 

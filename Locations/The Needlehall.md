@@ -1,0 +1,2 @@
+– A tall, windowless, slate-gray loomspire in the heart of [[Rosemere]], rumored to house the ancestral Pattern Codex and dyed vaults of Fenlace.  Headquarters of the [[Threadwarden's Guild]]
+_(Secretive, urban, industrial enclave)_

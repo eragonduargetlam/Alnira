@@ -1,0 +1,2 @@
+– A disguised counting house beneath [[Velcairn]]’s [[Stonemarket]], where ledgers hide smuggling records and blackmail stockpiles.  Headquarters of [[Gilded Knives]]
+_(Urban, subterranean underguild center)_

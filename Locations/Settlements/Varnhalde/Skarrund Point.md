@@ -1,0 +1,1 @@
+ a small, fortified island off the Velcairn coast. It houses workshops, meeting halls, and secret construction projects, hidden from prying eyes.
