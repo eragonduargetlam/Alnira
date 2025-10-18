@@ -1,0 +1,2 @@
+A one-time boon allowing the bearer to **stabilize a chaotic magical effect**, **dispel imbalance**, or **speak with a spirit who recognizes them as "whole."
+		The Knot is a loop of braided ash-thread, warm to the touch. It dissolved upon use, leaving a circle of soot on the user's palm for one day.

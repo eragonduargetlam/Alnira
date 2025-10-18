@@ -1,0 +1,1 @@
+Guardian of memory and fire, presiding over rites that honor the village's survival and ward against the return of old evils through ritual flame.

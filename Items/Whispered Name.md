@@ -1,0 +1,1 @@
+once a player may ask a spirit, magical entity, or relic one question, even if it doesn't normally speak

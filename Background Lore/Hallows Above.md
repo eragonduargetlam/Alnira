@@ -1,0 +1,1 @@
+Collection of realms once inhabited by the [[Old Gods]], now entirely populated by the [[New Gods]] when they claimed them in the [[Dawn Concord]].

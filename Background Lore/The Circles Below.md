@@ -1,0 +1,3 @@
+A series of realms considered places embodying corruption, destruction and endless hunger. These realms are rumored to be the resting place of the most dangerous creatures in the [[Core Realms]]. The majority of the other realms have safeguards in place to ward against Fallen that wish to cross over.
+
+In the [[Mortal Realm]], however, magical acts of great evil may temporarily open a rift between the two allowing Fallen to pass through.

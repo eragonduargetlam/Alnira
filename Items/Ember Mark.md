@@ -1,0 +1,1 @@
+once, a player may absorb a magical effect intended for another, redirecting it to themselves (no damage mitigation allowed)
